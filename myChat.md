@@ -1,0 +1,1 @@
+https://www.finanzfluss.de/user/depots-accounts
