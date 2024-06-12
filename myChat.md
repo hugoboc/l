@@ -1,1 +1,1 @@
-https://www.finanzfluss.de/user/depots-accounts
+www.nba.com
